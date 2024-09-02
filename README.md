@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any paltform
 - 📫 How to reach me just chat me hehe..
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: like drakor so much
+  
 
 <!---
 aallee3/aallee3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
